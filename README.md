@@ -5,7 +5,6 @@
 
 - 📫 Want to reach me (use discord) **Tada Kagayaku#1692**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
